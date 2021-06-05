@@ -1,0 +1,3 @@
+* Riding 🚴
+* Eating peanuts 🥜
+* Running 🏃
